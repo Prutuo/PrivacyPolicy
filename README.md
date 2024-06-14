@@ -1,5 +1,3 @@
-# Privacy Policy
-
 ## 1. WHAT INFORMATION DO WE COLLECT?
 
 
